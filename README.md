@@ -1,2 +1,2 @@
 # rise
-vn;jfkbvnzxfjlbfhdr'onbobabuoebtb
+imPoRt PYtHon
