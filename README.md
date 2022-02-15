@@ -1,2 +1,1 @@
-# rise
-imPoRt PYtHon
+# LearningCSharp
